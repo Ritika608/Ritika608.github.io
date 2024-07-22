@@ -9,7 +9,7 @@ Now I want to share my experience at GNDEC in my early days
 FIRST DAY
 I remember, there was a 
 
-MY +2 MARKSHEET
+**MY +2 MARKSHEET**
 
 |Subject|Obtained Marks|Total Marks|
 |-------|--------------|-----------|
