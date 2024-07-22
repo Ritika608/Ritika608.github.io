@@ -12,4 +12,8 @@ MY +2 MARKSHEET
 
 |Subject|Obtained Marks|Total Marks|
 |-------|--------------|-----------|
+|Physics|99            |100        |
+|-------|--------------|-----------|
+
+
 ![Excel certificate](Screenshot_2024-07-22-16-42-41-58_40deb401b9ffe8e1df2f1cc5ba480b12.jpg)
