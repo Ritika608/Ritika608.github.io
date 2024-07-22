@@ -25,3 +25,5 @@ MY EXCEL COURSE CERTIFICATE 🥰
 **CONTACT ME ON**
 
 [Linkedin](https://www.linkedin.com/in/ritika-shah-0abb1231a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
+
+[Email](ritikashah063@gmail.com)
