@@ -21,3 +21,6 @@ I remember, there was a
 
 MY EXCEL COURSE CERTIFICATE 🥰
 ![Excel certificate](Screenshot_2024-07-22-16-42-41-58_40deb401b9ffe8e1df2f1cc5ba480b12.jpg)
+
+**CONTACT ME ON**
+[LINKED IN](https://www.linkedin.com/in/ritika-shah-0abb1231a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
